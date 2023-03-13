@@ -1,1 +1,1 @@
-Hola que tal xd# uoc_p3.2
+Hola xd# uoc_p3.2
