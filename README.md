@@ -1,1 +1,1 @@
-Hola xd# uoc_p3.2
+Això és per fer proves# uoc_p3.2
